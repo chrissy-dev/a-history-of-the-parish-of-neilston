@@ -1,5 +1,6 @@
 # A History of the Parish of Neilston
-## By David Pride (1910)
+
+By David Pride (1910)
 
 This book has been considered by academicians and scholars of great significance and value to literature and forms a part of the knowledge base for future generations.
 
